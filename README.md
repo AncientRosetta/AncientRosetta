@@ -1,9 +1,5 @@
 Hi, I’m Rose/Rowan!
 
-Pronouns: she/they
-
-21 / Malaysian-American / Full-time college student
-
 BYI:
 - I'm an acespec lesbian, so sexual jokes r fine but I will hide you if you're making me uncomfy.
 - I tend to be offtab a lot, so please whisper if you want to interact w/ me! C+H are cool too!
