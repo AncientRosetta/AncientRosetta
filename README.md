@@ -1,5 +1,7 @@
 Hi, I’m Rose/Rowan!
+
 Pronouns: she/they
+
 21 / Malaysian-American / Full-time college student
 
 BYI:
