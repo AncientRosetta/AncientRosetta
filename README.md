@@ -2,8 +2,8 @@ Hi, I’m Rose/Rowan!
 I'm a full-time uni student studying astronomy and physics!
 
 BYI:
-- I'm an acespec lesbian, so sexual jokes r fine but I will hide you if you're making me uncomfy.
-- I tend to be offtab a lot, so please whisper if you want to interact w/ me! C+H are cool too!
+- I'm an acespec lesbian, so sexual jokes r fine but I will hide you if ur being obnoxious.
+- I tend to be offtab a lot, so please whisper if you want to interact w/ me, C+H are cool too!
 
 DNI:
 - General DNI's. Don't talk to me if you're a bigot.
