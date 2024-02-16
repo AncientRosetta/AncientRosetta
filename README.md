@@ -1,4 +1,5 @@
 Hi, I’m Rose/Rowan!
+I'm a full-time uni student studying astronomy and physics!
 
 BYI:
 - I'm an acespec lesbian, so sexual jokes r fine but I will hide you if you're making me uncomfy.
