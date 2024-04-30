@@ -1,4 +1,4 @@
-Hi, I’m Rose/Rowan!
+If you're looking at this from PonyTown, hi!! I’m Rose/Rowan!
 I'm a full-time uni student studying astronomy and physics!
 
 BYI:
@@ -9,7 +9,7 @@ DNI:
 - General DNI's. Don't talk to me if you're a bigot.
 - MCYT fandom people. If you watched individual channels ur chill, but please leave me alone if you are still active within the fandom.
 
-
+If you're one of my friends pls ignore this this is not a real repo LOL
 <!---
 AncientRosetta/AncientRosetta is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
